@@ -5,9 +5,9 @@
 <br>
 <br>
 
-作品：Closet Case
-作者：Robert Rodi (创造了漫威洛基的男人)
-评分：5/5 ⭐️⭐️⭐️⭐️
+作品：Closet Case <br>
+作者：Robert Rodi (创造了漫威洛基的男人) <br>
+评分：5/5 ⭐️⭐️⭐️⭐️ <br>
 闷骚深柜被逼装直，带假女友深入上司直男窝却遇命中真男友，喜剧感爆棚，是我读过最搞笑最有趣也不失深刻的通讯录小说，BF Material by Alexis Hall 和 Less by Andrew Sean Greer的加强进化版
 
 关键词：闷骚深柜；装直男；假女友；drama king；喜剧；逼飞奶炸；HE；a queer book written by a queer man
